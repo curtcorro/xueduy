@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方电气放量上涨4.1%，风电设备订单饱满</h3><br><p>长缆科技异动拉升4.3%，高压电缆需求回暖。<br><br> | 来源：<code>https;//hlzbnbass.org.cn
+</code></p><br><br><h3>广西交投旗下标的异动，东盟基建合作持续深化</h3><br><p>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧。<br><br> | 来源：<code>https;//hlzbnbass.cn
+</code></p><br><br><h3>比亚迪AH股同步走强，新能源整车板块领涨两市</h3><br><p>俄乌冲突交换战俘达成协议，千名被俘人员获释。<br><br> | 来源：<code>https;//jytyzbgfpt.com.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>https;//jytyzbgfpt.org.cn
+</code></p><br><br><h3>东方雨虹建材需求回暖，前三季度业绩预增超25%</h3><br><p>陕西建工异动拉升3.5%，西北基建订单持续落地。<br><br> | 来源：<code>https;//jytyzbgfpt.cn
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https;//jsfzzqw.com.cn
+</code></p><br><br><h3>中天科技放量上涨4.7%，海缆+储能双轮驱动</h3><br><p>人工智能与大模型应用（100条）。<br><br> | 来源：<code>https;//jsfzzqw.org.cn
+</code></p><br><br><h3>全球文化产业规模突破2.5万亿美元，数字文化占比提升</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>https;//jsfzzqw.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>药明康德全球竞争力研究：CXO赛道的长期成长逻辑。<br><br> | 来源：<code>https;//jrsddkqmfzbnba.com.cn
+</code></p><br><br><h3>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https;//jrsddkqmfzbnba.org.cn
+</code></p><br><br><h3>充电桩下乡政策落地，充电桩产业链标的走强</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>https;//jrsddkqmfzbnba.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>https;//jrsddwcjgqzbnba.com.cn
+</code></p><br><br><h3>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https;//jrsddwcjgqzbnba.org.cn
+</code></p><br><br><h3>全国广场舞大赛总决赛举办，超百万大妈参与线上线下赛事</h3><br><p>云南泼水节暑期活动重启，单日参与游客突破50万人次。<br><br> | 来源：<code>https;//jrsddwcjgqzbnba.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>https;//jrswqzb.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https;//jrswqzb.org.cn
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及。<br><br> | 来源：<code>https;//jrswqzb.cn
+</code></p><br><br><h3>全国博物馆总数突破6500家，年接待观众超12亿人次</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>https;//jrsyyzbzq.com.cn
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https;//jrsyyzbzq.org.cn
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>当升科技涨超5.1%，正极材料海外订单增长。<br><br> | 来源：<code>https;//jrsyyzbzq.cn
