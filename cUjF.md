@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://jiedian-zh.com.cn
+</code></p><br><br><h3>能耗双控政策优化，高耗能行业龙头标的走强</h3><br><p>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%。<br><br> | 来源：<code>https://jiejiedongman.com.cn
+</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>新能源金属需求回暖：钴、锂、镍的行情持续性对比。<br><br> | 来源：<code>https://jiejiejiaohe.com.cn
+</code></p><br><br><h3>儿童用药扶持政策，儿科医药标的全线拉升</h3><br><p>北向资金大额增持美的集团，家电龙头外资持仓创历史新高。<br><br> | 来源：<code>https://jiemei-nuli.com.cn
+</code></p><br><br><h3>保险资管扎堆调研机器人减速器标的，产能释放进度披露</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>https://jin-bao-bo.com.cn
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>万科A存量资产运营：商业地产+物流地产的第二曲线。<br><br> | 来源：<code>https://jin-man-tiantang-benzi.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>https://jin-man-tiantang-fabuye.com.cn
+</code></p><br><br><h3>吉林高速异动拉升1.7%，区域路网业务逐步复苏</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>https://jin-man-tiantang-guan-wang.com.cn
+</code></p><br><br><h3>鱼类产品价格上调10%，渔业板块迎来行情</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://jin-man-tiantang-wangye-ban.com.cn
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://jin-man-tiantang-xiazai.com.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>https://jin-man-tiantang.com.cn
+</code></p><br><br><h3>全国重点流域水生态环境保护规划落地，治理投入超万亿元</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>https://jin-mantiantang.com.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>大北农种业业务放量，前三季度业绩预增超55%。<br><br> | 来源：<code>https://jingmantiantangmanhua.com.cn
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>https://jingpin-jiujiu.com.cn
+</code></p><br><br><h3>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善</h3><br><p>国内AI生成内容监管细则落地，AIGC内容标注要求全面实施。<br><br> | 来源：<code>https://jingpin-shipin.com.cn
+</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升。<br><br> | 来源：<code>https://jingpin-yi-qu.com.cn
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>https://jingpin-yiqu.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>成都马拉松开跑，赛道串联城市核心景点成网红赛事。<br><br> | 来源：<code>https://jingpin-yiquerqu.com.cn
+</code></p><br><br><h3>大模型安全国家标准发布，行业合规发展有章可循</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>https://jingpindashi.com.cn
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>黄河流域生态保护取得阶段性成效，水质优良比例达92%。<br><br> | 来源：<code>https://jingpinjiujiujiu.com.cn
