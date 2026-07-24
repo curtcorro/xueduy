@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>法律大模型上线，AI辅助律师办案效率提升2倍</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>https://cangjingkong.com.cn
+</code></p><br><br><h3>自由贸易试验区扩围，自贸港本地股异动</h3><br><p>中兴通讯算力布局：从通信设备到算力基础设施的拓展。<br><br> | 来源：<code>https://cangjingyou.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>https://cao-bi-dongtaitu.com.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>基金公司集体到访机器人控制器标的，国产控制器市占率提升。<br><br> | 来源：<code>https://cao-liu.cn
+</code></p><br><br><h3>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://cao-liudizhi.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿。<br><br> | 来源：<code>https://cao-liujishutaolunqu.cn
+</code></p><br><br><h3>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率</h3><br><p>洽洽食品涨超3.4%，坚果业务收入增速回升。<br><br> | 来源：<code>https://cao-liuluntan.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://cao-liushequ.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>国际黄金价格回升至2100美元/盎司，避险需求再度升温。<br><br> | 来源：<code>https://cao-liuwang.cn
+</code></p><br><br><h3>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP</h3><br><p>多模态大模型实现4K视频实时生成，10秒产出高清短视频。<br><br> | 来源：<code>https://caodengheshang.cn
+</code></p><br><br><h3>QFII集中调研宠物食品龙头，海外市场渗透率数据公开</h3><br><p>全国非遗文旅体验点破2000个，非遗游成暑期新潮流。<br><br> | 来源：<code>https://caoliuapp.cn
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://caoliucl.cn
+</code></p><br><br><h3>核聚变实验装置获重大进展，可控核聚变标的异动</h3><br><p>全国太湖流域蓝藻水华防控成效显著，水质稳定达标。<br><br> | 来源：<code>https://caoliuduanshipin.cn
+</code></p><br><br><h3>国内AI产业规模破2万亿，年增速超35%成经济新引擎</h3><br><p>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒。<br><br> | 来源：<code>https://caoliuerweima.cn
+</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>东方财富用户粘性：互联网金融平台的流量沉淀逻辑。<br><br> | 来源：<code>https://caoliuhuijiadelu.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼。<br><br> | 来源：<code>https://caoliujishutaolunqu.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://caoliushe-qu.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>https://caoliushe.cn
+</code></p><br><br><h3>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷</h3><br><p>阳光电源研发投入：逆变器龙头持续保持技术领先的原因。<br><br> | 来源：<code>https://caoliushequdizhi.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>https://caoliushequguanwang.cn
