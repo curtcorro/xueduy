@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降。<br><br> | 来源：<code>https://6686-online-login.com
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https://728-android-old.com
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://800-quanxun-baicai.com
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>https://8268-caipiao-official.com
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>中国通号高铁信号订单高增，单季业绩预告超预期。<br><br> | 来源：<code>https://850-official-old.com
+</code></p><br><br><h3>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁</h3><br><p>中国女篮亚洲杯夺冠，时隔12年重登亚洲之巅。<br><br> | 来源：<code>https://850-version-new.com
+</code></p><br><br><h3>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才</h3><br><p>嫦娥探月工程新任务，航天科技产业链迎来催化。<br><br> | 来源：<code>https://8866h-cc-vip.com
+</code></p><br><br><h3>航发动力军机交付超预期，前三季度业绩预增超30%</h3><br><p>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入。<br><br> | 来源：<code>https://8868-app-vip.com
+</code></p><br><br><h3>氢能示范城市群政策落地，氢能源板块全线走强</h3><br><p>澜起科技异动拉升4.3%，内存接口芯片份额提升。<br><br> | 来源：<code>https://8x8x8.com.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>伊利股份涨超3.2%，乳制品行业需求回暖。<br><br> | 来源：<code>https://8x8x8x.com.cn
+</code></p><br><br><h3>全国游泳冠军赛落幕，多名小将打破全国纪录</h3><br><p>海尔智家高端产品占比提升，单季业绩预告超预期。<br><br> | 来源：<code>https://8x8xshuimitao.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://8x8xzaixianguankanwanzhengban.com.cn
+</code></p><br><br><h3>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁</h3><br><p>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域。<br><br> | 来源：<code>https://91-baihu.com.cn
+</code></p><br><br><h3>全国东北虎种群数量突破70只，野生虎栖息地持续扩大</h3><br><p>正邦科技债务重组：养殖企业困境反转的案例解析。<br><br> | 来源：<code>https://91-cc.com.cn
+</code></p><br><br><h3>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖</h3><br><p>小米汽车交付量超预期，小米汽车产业链全线爆发。<br><br> | 来源：<code>https://91-chengren-zaixian.com.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>赣锋锂业突破20日线，短期反弹窗口开启。<br><br> | 来源：<code>https://91-chigua.com.cn
+</code></p><br><br><h3>全国步行街改造升级完成，200条示范街夜间营收占比超70%</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>https://91-chiguawang.com.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>全国古籍保护工程完成，超3000万册古籍得到妥善修复。<br><br> | 来源：<code>https://91-ci-yuan.com.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>https://91-ciyuan.com.cn
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>中东产油国延长减产协议，国际油价维持温和上涨态势。<br><br> | 来源：<code>https://91-com.com.cn
