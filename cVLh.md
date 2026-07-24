@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分38秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>中国藤球队世锦赛包揽金牌，传统优势项目持续巩固。<br><br> | 来源：<code>https://yinnanluannu.com.cn
+</code></p><br><br><h3>海螺水泥涨超3.7%，基建投资增速回暖带动需求</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://yinwang91.cn
+</code></p><br><br><h3>浪潮信息放量上涨7.4%，AI服务器出货量超预期</h3><br><p>全国健身健美锦标赛举办，选手展现力量与健美风采。<br><br> | 来源：<code>https://yiqi-cao.com.cn
+</code></p><br><br><h3>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手</h3><br><p>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒。<br><br> | 来源：<code>https://yiqic.com.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>北向资金大额增持五粮液，白酒龙头外资持仓环比提升。<br><br> | 来源：<code>https://yiqicao17c.com.cn
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://yiqicaocom.com.cn
+</code></p><br><br><h3>世界文化遗产新增2处，我国世遗总数增至60处</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://yiqicaomeiridasai.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>公募基金集中调研IDC龙头，AI算力上架率创历史新高。<br><br> | 来源：<code>https://yiqicaorukou.com.cn
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>https://yiqicaoshipin.com.cn
+</code></p><br><br><h3>西湖暑期游客量突破600万人次，免费景区持续释放民生红利</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://yiqicaowang.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>正泰电器户用光伏装机超预期，前三季度业绩预增超25%。<br><br> | 来源：<code>https://yiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>https://yiquerqusanqu.com.cn
+</code></p><br><br><h3>蚝油产品价格上调3%，调味品全产业链盈利优化</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://yiren-jiujiu.com.cn
+</code></p><br><br><h3>福州三坊七巷暑期客流超1500万，闽派文旅产品热销</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>https://yiren-zaixian.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>https://yongbaoqingchun.com.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>山西汾酒涨超5.1%，青花系列全国化推进加速。<br><br> | 来源：<code>https://yongjiuri.com.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>山东路桥放量上涨3.5%，基建订单持续饱满。<br><br> | 来源：<code>https://yongli-huanggong.com.cn
+</code></p><br><br><h3>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>https://youqihuafei.org.cn
+</code></p><br><br><h3>上半年全国战略性新兴产业增加值同比增长9.3%</h3><br><p>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求。<br><br> | 来源：<code>https://youren-de-feixing.com.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>京沪高铁暑运客流超预期，单季业绩预增超100%。<br><br> | 来源：<code>https://youshuiruoruo.com.cn
