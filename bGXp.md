@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>https://mogu-shipinzaixian.com.cn
+</code></p><br><br><h3>全国工业用水重复利用率达92%，节水型工业体系建成</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>https://mogu-tv.com.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>https://moguchengpinrenshipin.com.cn
+</code></p><br><br><h3>上海推出“夜生活节”，夜间商户营业额同比增长60%</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>https://moguchuanmei.com.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://mogushequ.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://mogushipin-guanwang.com.cn
+</code></p><br><br><h3>双汇发展异动拉升2.9%，肉制品盈利边际改善</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://mogushipinapp.com.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>特变电工新能源盈利高增，单季业绩预告超预期。<br><br> | 来源：<code>https://mogushipinios.com.cn
+</code></p><br><br><h3>中国交建涨超3.2%，港口航道业务优势凸显</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>https://mogushipinwangyeban.com.cn
+</code></p><br><br><h3>许继电气特高压订单落地，单季业绩预告超预期</h3><br><p>海上风电大基地集中开工，海缆产业链标的上涨。<br><br> | 来源：<code>https://mogushipinwangzhan.com.cn
+</code></p><br><br><h3>全国中华白海豚种群数量突破5000头，近海生态持续改善</h3><br><p>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。<br><br> | 来源：<code>https://mogushipinxiazai.com.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>新能源整车板块集体反弹：谁是下一个领涨龙头。<br><br> | 来源：<code>https://mogushipinzaixianguankan.com.cn
+</code></p><br><br><h3>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析</h3><br><p>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入。<br><br> | 来源：<code>https://mogutvchengpinren.com.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://mogutvrukou.com.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>紫金矿业沿5日均线上行，趋势行情下的持仓策略。<br><br> | 来源：<code>https://mogutvwangyeban.com.cn
+</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://moguwang.com.cn
+</code></p><br><br><h3>长安汽车新能源盈利转正，单季净利润同比增200%</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>https://mrds-mrds.com.cn
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>https://mu-jiaoshi.com.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>集成电路税收减免政策延长，芯片全板块集体上涨。<br><br> | 来源：<code>https://mugua-shipin.com.cn
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>通威股份低位反弹，超跌后的修复行情持续性判断。<br><br> | 来源：<code>https://mugua-yingyuan.com.cn
