@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://yazhou-tiantang.cn
+</code></p><br><br><h3>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>https://yazhou-tiantang.com.cn
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一。<br><br> | 来源：<code>https://yazhou-wuma.com.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>https://yazhou-yiqu.com.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>全国地表水优良水体比例达89%，黑臭水体基本消除。<br><br> | 来源：<code>https://yazhou-yiquerqu.com.cn
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>https://yazhou-zaixian.com.cn
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>https://yazhouguochan.com.cn
+</code></p><br><br><h3>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>https://yazhoujingpinshipin.com.cn
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>露营经济上半年市场规模突破300亿元，精致露营成为新趋势。<br><br> | 来源：<code>https://yazhoujingpinwang.com.cn
+</code></p><br><br><h3>大模型在气象领域应用，天气预报准确率提升15%</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>https://yazhoujingpinyiqu.com.cn
+</code></p><br><br><h3>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒</h3><br><p>海尔智家高端化布局：卡萨帝品牌的溢价能力解析。<br><br> | 来源：<code>https://yazhoujingpinyiquerqu.com.cn
+</code></p><br><br><h3>农业机械化推广政策，农机装备板块全线异动</h3><br><p>风电并网消纳政策优化，风电运营板块全线走强。<br><br> | 来源：<code>https://yazhousese.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台。<br><br> | 来源：<code>https://yazhouwang.com.cn
+</code></p><br><br><h3>山东路桥放量上涨3.5%，基建订单持续饱满</h3><br><p>中兴通讯放量上涨4.8%，算力服务器业务高增。<br><br> | 来源：<code>https://yazhouwuma.com.cn
+</code></p><br><br><h3>全球跨境旅游人次上半年突破7亿，旅游业全面复苏</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://yazhouwuma.net.cn
+</code></p><br><br><h3>中国男子帆船队亚运会夺冠，水上项目实现新突破</h3><br><p>煤炭价格企稳回升，煤炭高股息标的集体上涨。<br><br> | 来源：<code>https://yazhouyi-qu.com.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆。<br><br> | 来源：<code>https://yazhouyi.com.cn
+</code></p><br><br><h3>地下综合管廊规划，地下管网标的全线异动</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://yazhouyiji.com.cn
+</code></p><br><br><h3>小康股份涨超7.7%，新能源汽车业务盈利修复</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>https://yazhouyijiriben.com.cn
+</code></p><br><br><h3>中国书法申遗成功，传统艺术走向世界舞台</h3><br><p>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径。<br><br> | 来源：<code>https://yazhouyiqu.com.cn
