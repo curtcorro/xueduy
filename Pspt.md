@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北京环球影城暑期单日客流破5万，周边酒店一房难求</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://caomei-shipin.com.cn
+</code></p><br><br><h3>拓普集团放量拉升6.7%，汽车零部件订单超预期</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://caomei-shipinapp.cn
+</code></p><br><br><h3>阳光电源海外逆变器爆发，前三季度业绩预增110%</h3><br><p>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%。<br><br> | 来源：<code>https://caomeidaohang.cn
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>https://caomeishipinzaixianbofang.cn
+</code></p><br><br><h3>浪潮信息冲高，AI服务器需求维持高增长态势</h3><br><p>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰。<br><br> | 来源：<code>https://caomeishipinzaixianguankan.cn
+</code></p><br><br><h3>多地推出夜间文旅补贴，商户夜间经营成本下降30%</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://caomeishipinzaixianguankanmianfei.cn
+</code></p><br><br><h3>人工智能产业标准落地，AI合规标的全线异动</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>https://caoshequdizhiyidizhier.cn
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://cc91.cn
+</code></p><br><br><h3>全国地表水优良水体比例达89%，黑臭水体基本消除</h3><br><p>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位。<br><br> | 来源：<code>https://chaopengzaixian.com.cn
+</code></p><br><br><h3>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%</h3><br><p>全国演出市场线下消费人次破亿，周边产品营收占比提升。<br><br> | 来源：<code>https://cheng-renwangzhan.com.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>https://cheng91.cn
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>多地景区推出免票政策，国有A级景区免票覆盖超300家。<br><br> | 来源：<code>https://chengnian91cc.cn
+</code></p><br><br><h3>东莞控股放量上涨2.2%，珠三角车流量高增</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https://chengren-18-jin.com.cn
+</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://chengren-dianying.com.cn
+</code></p><br><br><h3>江淮汽车异动拉升4.7%，与华为合作车型落地加速</h3><br><p>公募基金集中调研电力现货交易标的，交易系统订单翻倍。<br><br> | 来源：<code>https://chengren-free-web.com.cn
+</code></p><br><br><h3>吉林高速异动拉升1.7%，区域路网业务逐步复苏</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>https://chengren-gaoqing.com.cn
+</code></p><br><br><h3>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>https://chengren-manhua.com.cn
+</code></p><br><br><h3>全国绿色供应链示范企业超千家，带动上下游产业低碳转型</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https://chengren-mianfei-wangzhan.com.cn
+</code></p><br><br><h3>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://chengren-riben-yiquerqu.com.cn
+</code></p><br><br><h3>中国现代五项队世锦赛夺得金牌，全能项目实现突破</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://chengren-shipin.com.cn
