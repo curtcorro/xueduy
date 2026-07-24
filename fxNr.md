@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分33秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天然气价格季节性上涨，燃气运营板块异动</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>全国太湖流域蓝藻水华防控成效显著，水质稳定达标。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>民宿行业规范发展政策，乡村旅游标的全线拉升</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>全国全民健身日活动启动，全国超万场赛事覆盖千万群众</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>机构资金集中买入海大集团6300万，饲料龙头获机构抱团</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>全国钢铁行业超低排放改造完成，减排效果达国际先进水平</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>除草剂价格单月上涨15%，农药龙头盈利修复超预期</h3><br><p>中国神华煤炭量价齐升，前三季度业绩预增超15%。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>网络安全政策升级，网安板块集体上涨</h3><br><p>英国经济止跌回升，二季度GDP同比增长0.6%。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>中国中冶冶金工程高增，单季业绩预告超预期</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>www.geeksuper.cn
