@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国居民健康素养水平提升至32%，健康中国行动成效显著</h3><br><p>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩。<br><br> | 来源：<code>https://wap-mogushipin.com.cn
+</code></p><br><br><h3>上半年全国显示面板出口同比增长21%，电子产业优势巩固</h3><br><p>贵州茅台站稳年线，趋势反转信号逐步确认。<br><br> | 来源：<code>https://web-19tiyu.com.cn
+</code></p><br><br><h3>民用无人机管理新规，无人机产业链全线走强</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://web-beibo-sports.com.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://web-jiubo-sports.com.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>山西路桥放量上涨3.2%，山西交通基建投资加码。<br><br> | 来源：<code>https://web-ld-tiyu.com.cn
+</code></p><br><br><h3>东方电气风电设备技术：国内能源装备龙头的多赛道布局</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>https://web-mitao.com.cn
+</code></p><br><br><h3>中国网球选手首次夺得大满贯单打冠军，创造历史突破</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://web-mitaoshipin.com.cn
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>全国绿色物流示范城市创建，快递电动化率达95%。<br><br> | 来源：<code>https://web-mogushipin.com.cn
+</code></p><br><br><h3>2026年暑期文旅总收入突破2万亿，创历史同期新高</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>https://web-qianyi-sports.com.cn
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>二十国集团峰会召开，达成全球经济治理新共识。<br><br> | 来源：<code>https://web-qs-tiyu.com.cn
+</code></p><br><br><h3>海洋牧场建设规划，海洋渔业板块集体上涨</h3><br><p>浪潮信息AI服务器出货超预期，单季业绩预增150%。<br><br> | 来源：<code>https://web-tk-sports.com.cn
+</code></p><br><br><h3>大模型在铁路领域应用，调度系统安全性和效率双提升</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>https://web-ym-tiyu.com.cn
+</code></p><br><br><h3>全国全民健身日活动覆盖超亿人次，群众体育热情高涨</h3><br><p>跨境电商出口高增，跨境电商板块全线爆发。<br><br> | 来源：<code>https://web-yy-tiyu.com.cn
+</code></p><br><br><h3>美的集团股价创年内新高，家电出口数据亮眼</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://web-zunlong-sports.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，深蓝系列车型销量破万</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://wending-ent-web.com.cn
+</code></p><br><br><h3>中航沈飞涨超4.7%，军机交付进度超市场预期</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>https://wepoker-official-ios.com
+</code></p><br><br><h3>东盟经济一体化进程加速，2026年区域内贸易占比升至35%</h3><br><p>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流。<br><br> | 来源：<code>https://white-tiger.com.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>https://worias.cn
+</code></p><br><br><h3>东盟经济一体化进程加速，2026年区域内贸易占比升至35%</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>https://worldcup-bifen-odds.com
+</code></p><br><br><h3>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列</h3><br><p>金砖国家新开发银行新增贷款规模突破500亿美元。<br><br> | 来源：<code>https://worldcup-caishengfu-web.com
