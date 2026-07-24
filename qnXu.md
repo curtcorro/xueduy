@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点。<br><br> | 来源：<code>https://new-jiujiuyingyuan.com.cn
+</code></p><br><br><h3>国内音乐节市场爆发，上半年演出场次同比增长150%</h3><br><p>理想汽车涨超8.5%，L系列车型月销破4万。<br><br> | 来源：<code>https://new-lala.com.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>卫星互联网频率分配落地，卫星制造板块集体上涨。<br><br> | 来源：<code>https://new-lebeijing.com.cn
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://new-ledongsports.com.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>云南暑期游订单破3000万，文旅收入同比增长85%。<br><br> | 来源：<code>https://new-leisi.com.cn
+</code></p><br><br><h3>多地出台支持民营经济新政，破除市场准入隐性壁垒</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://new-lulu.com.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>宁德时代Q3净利润同比增长70%，大超市场预期。<br><br> | 来源：<code>https://new-lulushe.com.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>https://new-luotimeinu.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>https://new-madouchuanmei.com.cn
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>虚拟电厂政策试点扩容，电力信息化标的集体拉升。<br><br> | 来源：<code>https://new-meiridasai.com.cn
+</code></p><br><br><h3>全国土壤污染状况详查完成，受污染耕地安全利用率达95%</h3><br><p>中国电竞战队S13总决赛夺冠，LPL赛区连续三年捧杯。<br><br> | 来源：<code>https://new-mg-tiyu.com.cn
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://new-mianfeikanpian.com.cn
+</code></p><br><br><h3>全国家政服务业营收上半年同比增长16%，民生消费升温</h3><br><p>全国房地产开发投资降幅收窄，市场预期逐步企稳。<br><br> | 来源：<code>https://new-milesports.com.cn
+</code></p><br><br><h3>浪潮信息冲高，AI服务器需求维持高增长态势</h3><br><p>世界贸易组织第13届部长级会议召开，达成多项多边协议。<br><br> | 来源：<code>https://new-mimijiaoxue.com.cn
+</code></p><br><br><h3>三星堆新出土文物超千件，古蜀文明研究取得重大突破</h3><br><p>机构专用席位净买入容百科技8800万，高镍正极龙头加仓。<br><br> | 来源：<code>https://new-mitaochuanmei.com.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>全国"三北"防护林工程年度任务完成，筑牢北方生态屏障。<br><br> | 来源：<code>https://new-mitaoshipin.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝放量，单季业绩预告超预期</h3><br><p>投资是认知的变现：你永远赚不到超出自己认知范围的钱。<br><br> | 来源：<code>https://new-mitaoyingshi.com.cn
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>中国女子排球队奥运资格赛全胜，直通巴黎奥运会。<br><br> | 来源：<code>https://new-mitaozaixian.com.cn
+</code></p><br><br><h3>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次</h3><br><p>农产品深加工扶持政策，农产品加工标的全线拉升。<br><br> | 来源：<code>https://new-mogu.com.cn
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>https://new-mogushipin.com.cn
