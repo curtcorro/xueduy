@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://xiaoxinnai.com.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://xiaoxuewang.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>https://xiaoyangmanguan.com.cn
+</code></p><br><br><h3>中国中冶放量上涨2.9%，新能源冶金订单爆发</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https://xiaoyuanchunse.com.cn
+</code></p><br><br><h3>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>https://xiaoyuandongmanku.com.cn
+</code></p><br><br><h3>百度智能云大模型平台开放，百万开发者接入生态</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>https://xiaozemaliya.com.cn
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>https://xie-shen-chang-guan.com.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>https://xin-pujing-yingshi.com.cn
+</code></p><br><br><h3>通威股份低位反弹，超跌后的修复行情持续性判断</h3><br><p>全国职业病防治体系完善，劳动者健康权益得到全面保障。<br><br> | 来源：<code>https://xin-pujing-yule.com.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>https://xin-pujing-yulecheng.com.cn
+</code></p><br><br><h3>卫星互联网星座加速组网，低轨卫星板块全线走强</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://xin91shipin.cn
+</code></p><br><br><h3>隆基绿能全球化布局：光伏龙头规避贸易壁垒的路径解析</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>https://xin91shipin.com.cn
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍。<br><br> | 来源：<code>https://xing-bake.com.cn
+</code></p><br><br><h3>全国会展经济快速复苏，上半年展览场次同比增长45%</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://xing-daohang.cn
+</code></p><br><br><h3>全国太湖流域蓝藻水华防控成效显著，水质稳定达标</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>https://xing-fubaodaohang.cn
+</code></p><br><br><h3>中国女排世界联赛总决赛夺冠，重返世界第一排名</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
+</code></p><br><br><h3>教育部发布新规，义务教育阶段课后服务实现全覆盖</h3><br><p>央行宣布全面降准0.5个百分点，释放长期资金超万亿。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>全球电动汽车销量突破2500万辆，市场份额持续提升。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>上海建工涨超2.6%，长三角基建订单回暖。<br><br> | 来源：<code>https://xingbakezaixianguankan.cn
+</code></p><br><br><h3>宁德时代Q3净利润同比增长70%，大超市场预期</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://xingbashequ.cn
