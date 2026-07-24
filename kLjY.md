@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上海自贸区扩区方案落地，引领更高水平对外开放</h3><br><p>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析。<br><br> | 来源：<code>https://baoyuwangzhifabu.com.cn
+</code></p><br><br><h3>电竞入亚成绩亮眼，电竞游戏产业链标的拉升</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https://baoyuwangzhiyuming.com.cn
+</code></p><br><br><h3>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>https://baoyuzuixinyumingchaxun.com.cn
+</code></p><br><br><h3>大模型在城市治理领域应用，事件处理响应速度提升3倍</h3><br><p>新疆暑期游客量突破5000万人次，西部文旅市场爆发。<br><br> | 来源：<code>https://bb-caipiao-app.com
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://bb-sports-hub.com.cn
+</code></p><br><br><h3>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓</h3><br><p>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿。<br><br> | 来源：<code>https://bb-sports-net.com.cn
+</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>天赐材料异动拉升4.9%，电解液龙头成本优势凸显。<br><br> | 来源：<code>https://bb-sports-pro.com.cn
+</code></p><br><br><h3>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%</h3><br><p>零跑汽车异动拉升7.9%，性价比车型销量爆发。<br><br> | 来源：<code>https://bb-sports-zone.com.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://bbsports-web.com.cn
+</code></p><br><br><h3>新能源汽车出口数据翻倍，整车出口标的集体异动</h3><br><p>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局。<br><br> | 来源：<code>https://bcbm788-web-vip.com
+</code></p><br><br><h3>北交所改革政策落地，北交所概念股集体走强</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>https://beibei-857-new.com
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>美联储降息预期提前落地，黄金价格创历史新高。<br><br> | 来源：<code>https://beitiao-ma-fei-dianying.com.cn
+</code></p><br><br><h3>生猪价格突破18元/公斤，养殖板块盈利拐点显现</h3><br><p>海康威视AI转型进展：传统安防龙头的第二成长曲线。<br><br> | 来源：<code>https://benzidongman.com.cn
+</code></p><br><br><h3>A股总市值突破90万亿元，资本市场改革红利持续释放</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://benzigang.com.cn
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://benzimanhua.com.cn
+</code></p><br><br><h3>全球跨境直接投资回升至1.5万亿美元，流向绿色产业</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://benziwangzhan.com.cn
+</code></p><br><br><h3>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://bi-ka.com.cn
+</code></p><br><br><h3>AI视频修复技术普及，老电影4K修复效率提升10倍</h3><br><p>私募基金仓位创年内新高，私募重仓标的上涨。<br><br> | 来源：<code>https://bi-si-luntan.com.cn
+</code></p><br><br><h3>全国土壤污染状况详查完成，受污染耕地安全利用率达95%</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://bijinihushi.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://bisiluntan.com.cn
