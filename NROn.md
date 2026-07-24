@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>https://majiang-hu-le-moniqi.com.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>https://majiang-hu-le.com.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>https://majiang-hule-17w.com
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>东方电缆海缆订单爆发，前三季度业绩预增超70%。<br><br> | 来源：<code>https://majiang-youxi-zaixian-wan.com.cn
+</code></p><br><br><h3>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万</h3><br><p>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑。<br><br> | 来源：<code>https://majiang-zaixian-wan-mianfei-wangye-ban.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持光模块企业，合计投入超10亿</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>https://majiang-zaixian-wan.com.cn
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://mama-depengyouzaixianguankan.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>氢能示范城市群政策落地，氢能源板块全线走强。<br><br> | 来源：<code>https://mama-zhudong-suo-wen-erzi-de-xinlijibing.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://mamadepengyou.com.cn
+</code></p><br><br><h3>科大讯飞放量上涨6.8%，AI教育产品落地加速</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://mamahema.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://manhuatiantang.com.cn
+</code></p><br><br><h3>工业软件扶持政策出台，工业软件标的全线拉升</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>https://manhuatong.com.cn
+</code></p><br><br><h3>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一</h3><br><p>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张。<br><br> | 来源：<code>https://manhuaxiuxiu.cn
+</code></p><br><br><h3>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://mantiantang.com.cn
+</code></p><br><br><h3>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力</h3><br><p>中国女足亚洲杯夺冠，时隔16年重回亚洲之巅。<br><br> | 来源：<code>https://maokuai.com.cn
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>https://maomishequ.cn
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>上半年全国医药制造业利润同比增长13%，创新药贡献突出。<br><br> | 来源：<code>https://mayaluntan.cn
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>全国新增10家5A级景区，文旅品质持续升级。<br><br> | 来源：<code>https://meilidexiaomitao.com.cn
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>https://meimeidaohang.cn
+</code></p><br><br><h3>工业母机龙头登陆北交所，五轴机床市占率国内第一</h3><br><p>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团。<br><br> | 来源：<code>https://meinu-bei-cao.com.cn
