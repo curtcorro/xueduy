@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球人工智能产业规模突破5万亿美元，中美占据主导地位</h3><br><p>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流。<br><br> | 来源：<code>https://naishuidongman.com.cn
+</code></p><br><br><h3>全国糖尿病患者规范管理人数超8000万，并发症发生率下降</h3><br><p>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化。<br><br> | 来源：<code>https://naishuidongmanzaixian.com.cn
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>https://naishuileyuan.com.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>皖通高速涨超2.1%，安徽区域路网盈利稳健。<br><br> | 来源：<code>https://naishuimanhua.com.cn
+</code></p><br><br><h3>长电科技先进封装放量，前三季度业绩预增超50%</h3><br><p>赣锋锂业固态电池贡献增量，前三季度业绩预增70%。<br><br> | 来源：<code>https://naishuipianku.com.cn
+</code></p><br><br><h3>多式联运示范工程落地，物流枢纽板块走强</h3><br><p>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献。<br><br> | 来源：<code>https://nan-cha-nu-mianfeishipin.com
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>https://nan-tong-wang.com.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://nan-tongshipin.com.cn
+</code></p><br><br><h3>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://nan-tongwang.com.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>日本央行结束负利率政策，日元汇率回升至130关口。<br><br> | 来源：<code>https://nan-tongwangzhan.com.cn
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>https://nana-qingliang-ban.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>https://nangong-group-download.com
+</code></p><br><br><h3>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP</h3><br><p>全球智能穿戴市场规模突破2000亿美元，消费电子回暖。<br><br> | 来源：<code>https://nangongqiubao.com.cn
+</code></p><br><br><h3>东方电气放量上涨4.1%，风电设备订单饱满</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://nannubaluobo.com.cn
+</code></p><br><br><h3>大模型在环保领域应用，污染源识别准确率超96%</h3><br><p>全国工业用水重复利用率达92%，节水型工业体系建成。<br><br> | 来源：<code>https://nannuzuoaishipin.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>https://nanrenhuanggong.cn
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>德业股份储能逆变器优势：民营新能源企业的突围逻辑。<br><br> | 来源：<code>https://nanshengcaonusheng.com.cn
+</code></p><br><br><h3>张家界暑期接待人次破2000万，山地游产品持续热销</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://nantong-wang.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>https://nantonghucao.com.cn
+</code></p><br><br><h3>大模型轻量化部署方案成熟，中小企业接入成本下降90%</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>https://nantongwangwang.com.cn
