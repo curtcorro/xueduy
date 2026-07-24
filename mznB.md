@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>https://huoyingwang.com.cn
+</code></p><br><br><h3>加拿大经济保持增长，能源和科技产业双驱动</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>https://huoyingxigua.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://huwailuchu.com.cn
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>https://jcomic.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>中国女子排球队奥运资格赛全胜，直通巴黎奥运会。<br><br> | 来源：<code>https://jiedian-zh.com.cn
+</code></p><br><br><h3>中远海控集运运价反弹，单季业绩预告环比大增</h3><br><p>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家。<br><br> | 来源：<code>https://jiejiedongman.com.cn
+</code></p><br><br><h3>北向资金单日买入三安光电9000万，LED龙头获外资持续流入</h3><br><p>机构席位联手买入三一重工3亿，工程机械龙头获资金布局。<br><br> | 来源：<code>https://jiejiejiaohe.com.cn
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>https://jiemei-nuli.com.cn
+</code></p><br><br><h3>海康威视涨超4.7%，AI安防业务收入增速回升</h3><br><p>三亚暑期酒店预订量同比增长35%，滨海度假持续火热。<br><br> | 来源：<code>https://jin-bao-bo.com.cn
+</code></p><br><br><h3>教育改革与人才发展（100条）</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>https://jin-man-tiantang-benzi.com.cn
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https://jin-man-tiantang-fabuye.com.cn
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>全国居民人均体育消费支出同比增长15%，运动成为生活方式。<br><br> | 来源：<code>https://jin-man-tiantang-guan-wang.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>https://jin-man-tiantang-wangye-ban.com.cn
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>理想汽车家庭用户定位：精准产品定位下的销量爆发逻辑。<br><br> | 来源：<code>https://jin-man-tiantang-xiazai.com.cn
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>外资机构席位净买入沪硅产业8000万，硅片龙头获外资加仓。<br><br> | 来源：<code>https://jin-man-tiantang.com.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>https://jin-mantiantang.com.cn
+</code></p><br><br><h3>全国国民体质达标率达90%，国民身体素质稳步提升</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>https://jingmantiantangmanhua.com.cn
+</code></p><br><br><h3>中国交建海外订单落地，前三季度业绩预增超18%</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://jingpin-jiujiu.com.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>国际地缘与全球经济（100条）。<br><br> | 来源：<code>https://jingpin-shipin.com.cn
+</code></p><br><br><h3>北京环球影城暑期单日客流破5万，周边酒店一房难求</h3><br><p>锂价连续反弹15%，锂矿板块迎来趋势性行情启动。<br><br> | 来源：<code>https://jingpin-yi-qu.com.cn
