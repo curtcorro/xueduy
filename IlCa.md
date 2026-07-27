@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>瑞典经济走出负增长，科技产业拉动复苏</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>沪硅产业硅片国产替代：12英寸大硅片的产能释放逻辑</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中部地区崛起新政策落地，打造先进制造业增长极</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>义务教育优质均衡创建推进，千个县区通过国家级评估</h3><br><p>东方财富放量大涨，券商异动下的人气激活信号。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>天齐锂业触底反弹，超跌后的修复空间测算</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>特高压工程集中获批，电网设备板块全线异动</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>农村物流体系建设规划，乡村物流标的全线异动</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>黄山暑期单日客流破4万，山顶酒店提前半个月售罄。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国徒步大会覆盖300城，参与人次破千万</h3><br><p>全国会展经济快速复苏，上半年展览场次同比增长45%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北向资金大额扫货天合光能7100万，光伏龙头获外资流入</h3><br><p>全国地下水超采综合治理成效显著，水位回升超2米。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>春节档票房创历史新高，影视传媒板块集体走强。<br><br> | 来源：<code>www.www.gmgs.com.cn
