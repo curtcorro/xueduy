@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>国产AI芯片算力突破256TOPS，支撑大模型高效运行。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>AI数字人直播常态化，超十万直播间启用AI虚拟主播</h3><br><p>隆平高科种业龙头优势：国内种业龙头的研发与渠道积累。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人</h3><br><p>白酒行业产业政策引导，高端白酒板块集体上涨。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>虚拟电厂建设导则出台，虚拟电厂标的全线拉升</h3><br><p>药明康德CXO全球布局：全球医药研发外包的龙头价值。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>外资资管集中调研跨境电商龙头，出口增速数据首次公开</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北向资金举牌碳化硅企业，车规级半导体获外资重仓</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进</h3><br><p>全国水土流失治理面积年度完成6万平方公里，生态修复提速。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速</h3><br><p>全球智能手机市场回暖，二季度出货量同比增长7%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>外资持续流入中芯国际，半导体龙头持仓占比突破5%</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>美联储降息后美债收益率下行，外资回流中国权益市场</h3><br><p>全国固定资产投资同比增长5.1%，制造业投资增速领先。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>沪硅产业涨超5.8%，12英寸硅片产能持续释放</h3><br><p>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>海外资管组团调研光伏逆变器标的，海外市占率突破30%</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>复合肥价格上调7%，化肥全产业链盈利优化。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>地方国资战略入股人形电机龙头，助力核心零部件国产化</h3><br><p>东方财富基金代销回暖，单季净利润同比增60%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>比亚迪AH股同步走强，量价配合下的交易机会分析</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>www.trqgzc.com
