@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>比亚迪AH股同步走强，量价配合下的交易机会分析</h3><br><p>全国垃圾分类覆盖率达92%，资源化利用率提升至38%。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>美的集团创年内新高，海外家电收入增速超20%。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>伊利股份乳制品量价齐升，前三季度业绩预增超20%</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>保利发展涨超3.9%，央企地产销售数据回暖。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>机构+北向合力买入当升科技8200万，正极材料标的布局</h3><br><p>全国城市篮球联赛举办，覆盖百城参赛队伍破万支。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>北向资金大额增持长安汽车，自主车企外资持仓创年内新高</h3><br><p>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>海南自贸港封关运作准备全面就绪，政策红利加速释放</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>大模型在零售领域应用，AI智能选品准确率提升25%</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>三一重工全球化布局：工程机械龙头的第二增长曲线</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>隆基绿能涨超5.7%，HPBC组件出货量爆发</h3><br><p>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>海尔智家稳步上行，慢牛趋势下的持仓节奏。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>铅价上涨7%，铅酸电池板块盈利边际改善</h3><br><p>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>奥地利经济复苏，旅游业和制造业双回暖</h3><br><p>安凯客车涨超4.3%，客车出口订单同比增长。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>www.hmmanhua.com
