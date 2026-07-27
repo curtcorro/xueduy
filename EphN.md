@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>正泰电器放量上涨3.7%，户用光伏装机量领先</h3><br><p>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国藤球队世锦赛包揽金牌，传统优势项目持续巩固</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列</h3><br><p>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>温氏股份放量上涨4.2%，养殖业务盈利持续修复。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>北向资金连续加仓海康威视，AI安防龙头获外资持续布局</h3><br><p>全国非遗文旅体验点破2000个，非遗游成暑期新潮流。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>商汤日日新大模型4.0上线，智慧城市场景落地超百城</h3><br><p>印度经济增速达7.2%，成为全球增长最快主要经济体。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国公共图书馆年流通人次突破10亿，全民阅读氛围浓厚</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍</h3><br><p>中国女子现代五项队世锦赛夺冠，拿到巴黎奥运入场券。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>海螺水泥水泥价格回升，单季业绩预告超预期</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>通用航空机场建设规划，通航运营板块集体上涨</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>全国二手房市场活跃度回升，成交量连续3个月环比上涨。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入</h3><br><p>山西汾酒全国化加速，前三季度业绩预增超35%。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠</h3><br><p>全国马拉松赛事超500场，全年参赛人次破700万。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国县域商业体系建设完成，农村消费市场潜力持续释放</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>海大集团饲料技术优势：水产饲料龙头的研发壁垒</h3><br><p>外资机构席位净买入江铃汽车4600万，轻卡龙头获外资加仓。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>药明康德异动拉升5.2%，海外新药订单持续落地</h3><br><p>三亚暑期酒店预订量同比增长35%，滨海度假持续火热。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>鱼类产品价格上调10%，渔业板块迎来行情。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>五粮液中秋动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>www.qianfangdiy.cn
