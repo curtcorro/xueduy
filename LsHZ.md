@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上半年全国光伏组件出口同比增长28%，全球市场份额超92%</h3><br><p>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>北向资金大额扫货天合光能7100万，光伏龙头获外资流入</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>电阻产品价格上调4%，被动元件板块迎来行情。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>海天味业涨超3.5%，调味品行业需求复苏</h3><br><p>极端暴雨灾害预警，水利基建标的全线上涨。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国中冶冶金工程高增，单季业绩预告超预期</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>招商公路平台化布局：全国公路网络的整合成长逻辑</h3><br><p>全国社区运动会覆盖千城，群众家门口参与体育赛事。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>外资机构集中调研存储芯片龙头，海外订单情况成焦点</h3><br><p>法律大模型上线，AI辅助律师办案效率提升2倍。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>美的集团创年内新高，海外家电收入增速超20%</h3><br><p>北向资金大额扫货安琪酵母5500万，酵母龙头获外资流入。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>中兴通讯沿趋势线上行，通信板块的轮动机会</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>中国曲棍球队亚运会夺冠，集体球类项目多点开花。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>大消费板块估值修复：白酒、家电、医药的布局机会对比。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>保利发展央企地产优势：融资成本与资源获取的双重优势。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>www.www.gmgs.com.cn
