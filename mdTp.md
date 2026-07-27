@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>2026年全国高考报名人数1391万，多地新增AI相关专业招生。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>国内潮玩文旅融合项目爆发，主题潮玩展暑期吸引超千万人。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>云南暑期游订单破3000万，文旅收入同比增长85%</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>页岩气勘探开发政策，页岩气开采板块走强</h3><br><p>当升科技正极材料海外布局：高镍正极的全球份额扩张。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>东北振兴政策升级，东北本地股板块走强</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>紫金矿业创阶段新高，黄金有色板块沿趋势上行</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>国内首款7nm芯片量产，先进制程产业链异动</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>3D生成大模型技术突破，1分钟生成高精度工业模型</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国马拉松赛事超500场，全年参赛人次破700万</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>中国交建港口航道优势：全球港口建设龙头的核心壁垒</h3><br><p>东方财富基金代销回暖，单季净利润同比增60%。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>上半年出境游人次突破8000万，跨境旅游全面复苏。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>外资持续流入万科A，地产龙头外资持仓占比突破2%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>亚运会赛事热度超预期，体育产业板块全线上涨。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>全国街舞联赛覆盖百城，街舞爱好者规模破千万。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全国广场舞大赛总决赛举办，超百万大妈参与线上线下赛事</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>中韩经贸合作升级，双边自贸协定第二阶段谈判完成。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>6G技术研发推进计划，通信设备板块全线异动。<br><br> | 来源：<code>www.hnltjy.com
