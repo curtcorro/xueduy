@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分41秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍</h3><br><p>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼。<br><br> | 来源：<code>https://aiyewangyeban.net.cn
+</code></p><br><br><h3>蚝油产品价格上调3%，调味品全产业链盈利优化</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>https://aiyewangzhan.net.cn
+</code></p><br><br><h3>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手</h3><br><p>机构+北向合力买入新希望6700万，养殖标的获资金布局。<br><br> | 来源：<code>https://aiyexiazai.net.cn
+</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>全球6G研发进入关键阶段，多国联合推进技术标准制定。<br><br> | 来源：<code>https://akeelahandthebee.com.cn
+</code></p><br><br><h3>四川路桥一带一路订单落地，前三季度业绩预增超40%</h3><br><p>澜起科技异动拉升4.3%，内存接口芯片份额提升。<br><br> | 来源：<code>https://an-dashi.cn
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>https://anquye.com.cn
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>https://anwangchigua.cn
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>天邦食品涨超4.1%，养殖业务减亏效果显著。<br><br> | 来源：<code>https://anzhailala.com.cn
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>https://anzhuohuangyou.com.cn
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒。<br><br> | 来源：<code>https://aocai-2448442-net.com
+</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线</h3><br><p>新希望生猪出栏高增，单季业绩预告环比减亏。<br><br> | 来源：<code>https://app-188-net.com.cn
+</code></p><br><br><h3>城市防洪排涝政策，管网建设标的全线拉升</h3><br><p>海尔智家高端产品占比提升，单季业绩预告超预期。<br><br> | 来源：<code>https://app-biwei-vip.com.cn
+</code></p><br><br><h3>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://app-by-sports.com.cn
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>东方财富互联网券商优势：流量变现的长期成长空间。<br><br> | 来源：<code>https://app-ml-tiyu.com.cn
+</code></p><br><br><h3>QFII集中调研国产EDA企业，全流程工具突破引关注</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://aqdav.org.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期。<br><br> | 来源：<code>https://ba-geheiliao.com.cn
+</code></p><br><br><h3>中国花游队世锦赛集体项目夺冠，实现金牌零的突破</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://bachabacha.com.cn
+</code></p><br><br><h3>页岩气勘探开发政策，页岩气开采板块走强</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>https://bafuli.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>石大胜华异动拉升4.6%，溶剂行业供需格局优化。<br><br> | 来源：<code>https://bageheiliao.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>万科A地产行业格局：龙头房企的抗风险能力与复苏空间。<br><br> | 来源：<code>https://bageheiliao.org.cn
