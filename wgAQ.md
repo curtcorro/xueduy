@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流</h3><br><p>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%。<br><br> | 来源：<code>https://beibei-857-new.com
+</code></p><br><br><h3>华域汽车汽车零部件平台：国内汽车零部件龙头的价值</h3><br><p>绿色建材认证政策，绿色建材板块走强。<br><br> | 来源：<code>https://beitiao-ma-fei-dianying.com.cn
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>https://benzidongman.com.cn
+</code></p><br><br><h3>粤港澳大湾区政策升级，湾区地产基建标的走强</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>https://benzigang.com.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://benzimanhua.com.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>全国文旅数字化升级，超500家景区实现AR导览全覆盖。<br><br> | 来源：<code>https://benziwangzhan.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://bi-ka.com.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>苏州园林暑期接待人次破500万，江南古典文旅持续走红。<br><br> | 来源：<code>https://bi-si-luntan.com.cn
+</code></p><br><br><h3>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://bijinihushi.com.cn
+</code></p><br><br><h3>大消费板块估值修复：白酒、家电、医药的布局机会对比</h3><br><p>大模型在水利领域应用，洪水预警提前量提升至72小时。<br><br> | 来源：<code>https://bisiluntan.com.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://bitebishipin.org.cn
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>AI语音合成技术突破，克隆声音仅需3秒样本。<br><br> | 来源：<code>https://blfco.cn
+</code></p><br><br><h3>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>https://bob-sports-pro.com.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>https://bocai-tangguo-web.com
+</code></p><br><br><h3>中通客车异动拉升4.1%，海外市场拓展加速</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>https://boduoye.com.cn
+</code></p><br><br><h3>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场</h3><br><p>全球智能手机市场回暖，二季度出货量同比增长7%。<br><br> | 来源：<code>https://boluo-shipin.com.cn
+</code></p><br><br><h3>贵州建工异动拉升3.1%，区域基建业务高增</h3><br><p>长征国家文化公园全面建成，红色旅游年接待人次突破15亿。<br><br> | 来源：<code>https://btbxx.org.cn
+</code></p><br><br><h3>东方财富互联网券商生态：流量变现的长期成长逻辑</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>https://budayangheiliao.cn
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://bujianxingkongzaixianguankan.com.cn
+</code></p><br><br><h3>万科A异动拉升3.6%，核心城市楼盘去化率改善</h3><br><p>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力。<br><br> | 来源：<code>https://buliangyanjiusuo.com.cn
