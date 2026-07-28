@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://jm-cn.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>上半年全国新能源汽车电池出口同比增长40%。<br><br> | 来源：<code>https://jm-manhua.com.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>https://jm-wangye-ban.com.cn
+</code></p><br><br><h3>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三</h3><br><p>通用航空机场建设规划，通航运营板块集体上涨。<br><br> | 来源：<code>https://jm-web-official.com
+</code></p><br><br><h3>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯</h3><br><p>江铃汽车异动拉升4.2%，轻卡新能源化加速。<br><br> | 来源：<code>https://jmcomic-com.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://jmcomiccom.com.cn
+</code></p><br><br><h3>装配式建筑推广政策，装配式建筑标的全线异动</h3><br><p>全国工业余热利用项目大规模落地，年节能超千万吨标准煤。<br><br> | 来源：<code>https://jmcomicwang.com.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>全国职业病防治体系完善，劳动者健康权益得到全面保障。<br><br> | 来源：<code>https://jmcomicwangyeban.com.cn
+</code></p><br><br><h3>中国中车异动拉升，一带一路订单持续释放</h3><br><p>璞泰来涨超5.0%，负极材料行业格局优化。<br><br> | 来源：<code>https://jmcomiczzzone.com.cn
+</code></p><br><br><h3>浪潮信息放量上涨7.4%，AI服务器出货量超预期</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://jmmanhua.com.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局。<br><br> | 来源：<code>https://jmtiantangwang.com.cn
+</code></p><br><br><h3>海螺水泥水泥价格回升，单季业绩预告超预期</h3><br><p>天邦食品减亏路径：养殖行业周期底部的经营优化逻辑。<br><br> | 来源：<code>https://jmwangyeban.com.cn
+</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>炒股到最后拼的是心态：再好的牛股拿不住也是白搭。<br><br> | 来源：<code>https://js9001vip-official-login.com
+</code></p><br><br><h3>中兴通讯放量上涨4.8%，算力服务器业务高增</h3><br><p>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空。<br><br> | 来源：<code>https://k1-sports-trust.com
+</code></p><br><br><h3>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https://kai-sports-live.com.cn
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>华为盘古大模型行业落地，工业AI板块持续升温。<br><br> | 来源：<code>https://kai-yun-tiyu-guan-wang.com.cn
+</code></p><br><br><h3>特斯拉4680电池量产提速，锂电结构件标的集体上涨</h3><br><p>两融余额创阶段新高，券商杠杆业务标的异动。<br><br> | 来源：<code>https://kaiyuan-board-hub.com.cn
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>大模型在气象领域应用，天气预报准确率提升15%。<br><br> | 来源：<code>https://kaiyuan-qipai-pro.com.cn
+</code></p><br><br><h3>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>https://kaiyuan-sports-pro.com.cn
+</code></p><br><br><h3>2026年经济运行稳中向好，高质量发展迈出坚实步伐</h3><br><p>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍。<br><br> | 来源：<code>https://kaiyuan-tiyu.com.cn
